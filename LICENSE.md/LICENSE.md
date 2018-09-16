@@ -1,1 +1,1 @@
-I Dont care if you steal outline dont steam main concept pls <3
+I Dont care if you steal outline dont steal main concept pls <3
